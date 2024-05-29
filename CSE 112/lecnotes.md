@@ -9,4 +9,4 @@
 [Building and Deving Part 1](https://houses-pay-526.craft.me/O43FoB5a4asCAa)\
 [Building and Deving Part 2](https://houses-pay-526.craft.me/WJ7bDhvyPDO0T0)\
 [Defensive Web Dev](https://houses-pay-526.craft.me/g2yePWbjdwOOae)\
-[Minal](https://houses-pay-526.craft.me/O4RGh2xLpWRjfm)\
+[Minal](https://houses-pay-526.craft.me/O4RGh2xLpWRjfm)
